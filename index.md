@@ -1,11 +1,11 @@
-Click [here](https://edwinyoyada.github.io/jay-avm-update) to see the English Page
+[Click here](https://edwinyoyada.github.io/jay-avm-update-en) to see the English Page
 
 # 8 Desember 2021
 Hari ini Jayden pulang dari RS Siloam TB Simatupang setelah menjalani proses DSA.
 ![939B26F2-E9A3-4450-8D7A-FF42FAA3DD24](https://user-images.githubusercontent.com/5466522/145242676-f06092ea-7fcf-4fda-9e62-5e7fc9f6751c.JPG)
 
 ## Update Sumbangan
-Rekening KitaBisa Rp 243.589.017
+Rekening KitaBisa Rp. 243.589.017
 
 
 # Sebelum 8 Desember 2021
